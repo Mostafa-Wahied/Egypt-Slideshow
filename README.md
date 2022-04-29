@@ -1,2 +1,1 @@
 # Egypt-Slideshow
-
